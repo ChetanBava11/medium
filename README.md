@@ -1,3 +1,1 @@
 "# medium" 
-"# medium" 
-"# medium" 
